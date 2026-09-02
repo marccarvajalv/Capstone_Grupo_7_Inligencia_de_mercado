@@ -1,0 +1,1 @@
+# Capstone_Grupo_7_Inligencia_de_mercado
